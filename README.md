@@ -18,6 +18,6 @@ https://7maotv3.com
 
 失联后：优先打开以上中转页，或复制完整链接（带 https://）到浏览器访问。
 
-商务合作：https://dnc93cer.0v2zng-t1t1.icu/?channel=JW001
+商务合作：https://t.me/huangguoqing1
 
 网址打不开：切换 WIFI/4G/5G，更换 Chrome/Safari/Edge，依次尝试四个中转页。 请把网址分享给身边有需要的人。
