@@ -8,7 +8,7 @@ https://7maodj2.com
 
 https://7maotv3.com
 
-永久中转：https://7maotv.com
+永久中转：https://7maotv6.com
 
 永久域名（需科学上网）：https://7maoduanju.com
 
